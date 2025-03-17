@@ -62,7 +62,7 @@ I'm a passionate Computer Science student focused on building impactful software
 ## 📫 Let's Connect!
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/mihirpatelyorku/) 
-- 📧 Email: pmihirkumar001@gmail.com  
+- 📧 Email: pmihirkumar001@gmail.com / mihirrr@my.yorku.ca
 
 ---
 
